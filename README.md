@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Joey
+- 👀 I’m interested in: internships for summer 2025
+- 🌱 I’m currently majoring in: Computer Science
+- 💞️ I’m looking to collaborate on: 
+- 📫 How to reach me: joeykailing@gmail.com
+- ⚡ Fun fact: I have lived in Singapore!
